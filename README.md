@@ -3,7 +3,7 @@
   - founder of 20 r00mz productions 
 - 👀 I’m interested in ... arts and graphic design
 - 🌱 I’m currently learning ... Art & design - 
-- 💞️ I’m looking to collaborate on ... website design open source a.i
+- 🤝 I’m looking to collaborate on ... website design open source a.i
 - 📫 How to reach me ... mikez_petm@yahoo.com or mrveryviral on instagram michael paulino studios on fb
 - teaching computers to design websites
 - ⚡ Fun fact: ... I love learning
