@@ -1,6 +1,6 @@
 ![IMG_7422](https://github.com/user-attachments/assets/fe11f303-7b3d-4d41-b54b-6811e6ec9755)
 ![IMG_7134](https://github.com/user-attachments/assets/4ee62269-ab6e-47d7-a1e8-a4e08a97fa00)
-![IMG_7262](https://github.com/user-attachments/assets/618f918f-a426-434f-b465-ed5e607f3290)
+
 - 👋 Hi, I’m @michaelpaulino
   - data analysis developer from New York City
   - founder of 20 r00mz productions 
