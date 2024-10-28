@@ -1,5 +1,8 @@
-![IMG_7422](https://github.com/user-attachments/assets/fe11f303-7b3d-4d41-b54b-6811e6ec9755)
-![IMG_7134](https://github.com/user-attachments/assets/4ee62269-ab6e-47d7-a1e8-a4e08a97fa00)
+https://huggingface.co/spaces/Mi6paulino/20r00mz7
+
+
+https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
+
 
 - 👋 Hi, I’m @michaelpaulino
   - data analysis developer from New York City
@@ -16,4 +19,4 @@ mi6paulino/mi6paulino is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your changes.
 --->
 codespaces listed above #wizardspell ©️ 9/11/2024 . property of Michael Paulino 
-![IMG_6774](https://github.com/user-attachments/assets/2b5b0598-2dcd-4cc7-84cf-b76099439bb9)
+
