@@ -2,6 +2,7 @@ https://huggingface.co/spaces/Mi6paulino/20r00mz7
 
 
 https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
+![IMG_9545](https://github.com/user-attachments/assets/67b2338f-b93c-4632-9c78-0de12f09c5c4)
 
 
 - 👋 Hi, I’m @michaelpaulino
@@ -20,3 +21,5 @@ You can click the Preview link to take a look at your changes.
 --->https://www.fiverr.com/s/vvdk8GA?utm_source=CopyLink_Mobile
 codespaces listed above #wizardspell ©️ 9/11/2024 . property of Michael Paulino 
 
+https://www.voxels.com/play?coords=E@443E,390N
+NEWS! Journalist #michaelpaulino discovered a Banksy art piece in the metaverse! This is the first-ever recognition of Banksy’s work in the virtual world. Stay tuned as we uncover more details about this groundbreaking discovery. Join us in the metaverse and be a part of this revolutionary art movement! #BanksyArt #MetaverseDiscovery #BanksyCommunity #VirtualRevolution #github #art #nyc #nft #huggingface #perchance #chatgpt #aiart #artbasel2024 #michaelpaulino #michaelpaulinostudios
