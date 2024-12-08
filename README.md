@@ -1,9 +1,8 @@
-https://huggingface.co/spaces/Mi6paulino/20r00mz7
-
-
+https://voxels.com/play?coords=W@669W,8S
+METAVERSE ART GALLERY BY MICHAEL PAULINO #Artbasel2024 #voxels #blockchain #michaelpaulino #michaelpaulinostudios
 https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
 ![IMG_9545](https://github.com/user-attachments/assets/67b2338f-b93c-4632-9c78-0de12f09c5c4)
-
+https://huggingface.co/spaces/Mi6paulino/20r00mz7
 
 - 👋 Hi, I’m @michaelpaulino
   - data analysis developer from New York City
