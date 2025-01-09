@@ -4,6 +4,8 @@ METAVERSE ART GALLERY BY MICHAEL PAULINO #Artbasel2024 #voxels #blockchain #mich
 https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
 ![IMG_9545](https://github.com/user-attachments/assets/67b2338f-b93c-4632-9c78-0de12f09c5c4)
 https://huggingface.co/spaces/Mi6paulino/20r00mz7
+PLEASE PLEASE PLEASE CHECK OUT MY DIGITAL ART GALLERY ON VOXELS METAVERSE GUYS https://www.voxels.com/play?coords=SW@676W,7S,3U&fbclid=PAZXh0bgNhZW0CMTEAAaaa13aSgTBglooQtN-ONrVvJFOmKhymGWOE4s9G1XiV2-83HL0euX5a2o8_aem_N94T845_-fqn3UOYVFsvLw
+#michaelpaulino #michaelpaulinostudios
 
 - 👋 Hi, I’m @michaelpaulino
   - data analysis developer from New York City
