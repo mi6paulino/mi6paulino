@@ -1,3 +1,4 @@
+![IMG_2346](https://github.com/user-attachments/assets/4b6e2e48-5469-472d-80e9-c3cf3eb47790)
 ![IMG_0756](https://github.com/user-attachments/assets/daf06acb-215f-4049-adef-b2996b3f00ac)
 https://voxels.com/play?coords=W@669W,8S
 METAVERSE ART GALLERY BY MICHAEL PAULINO #Artbasel2024 #voxels #blockchain #michaelpaulino #michaelpaulinostudios
