@@ -1,5 +1,9 @@
 ![IMG_2346](https://github.com/user-attachments/assets/4b6e2e48-5469-472d-80e9-c3cf3eb47790)
 ![IMG_0756](https://github.com/user-attachments/assets/daf06acb-215f-4049-adef-b2996b3f00ac)
+Please consider Donating to sponsor my dance class - my content is brought forth by charitable donations from viewers like you . 
+![IMG_2616](https://github.com/user-attachments/assets/329fc449-4092-4c49-a38f-f53bf0e927d1)
+
+#github mastadon #microsoft #siliconvalley #foia #journalism #nyc #boston #nft #digitalart #google #llm #llama #meta #gemini #charity # #philanthropy #activism #election #electionday #huggingface #perchance #chatgpt #aiart #artbasel2025 #instagram #linux #michaelpaulino #michaelpaulinostudios
 https://voxels.com/play?coords=W@669W,8S
 METAVERSE ART GALLERY BY MICHAEL PAULINO #Artbasel2024 #voxels #blockchain #michaelpaulino #michaelpaulinostudios
 https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
