@@ -11,10 +11,6 @@ https://github.com/user-attachments/assets/93fd0db9-e02c-4ffb-8661-de834ffefb24
 https://huggingface.co/spaces/Mi6paulino/20r00mz7
 PLEASE PLEASE PLEASE CHECK OUT MY DIGITAL ART GALLERY ON VOXELS METAVERSE GUYS https://www.voxels.com/play?coords=SW@676W,7S,3U&fbclid=PAZXh0bgNhZW0CMTEAAaaa13aSgTBglooQtN-ONrVvJFOmKhymGWOE4s9G1XiV2-83HL0euX5a2o8_aem_N94T845_-fqn3UOYVFsvLw
 #michaelpaulino #michaelpaulinostudios![IMG_1946](https://github.com/user-attachments/assets/f3994245-b531-41a7-973b-796b5dd472ee)
-![IMG_1777](https://github.com/user-attachments/assets/b61f78e5-0ede-427a-baf3-a61a81af055f)
-![IMG_1778](https://github.com/user-attachments/assets/6c795eef-c37b-46c2-bf41-667c10a4881c)
-
-
 - 👋 Hi, I’m @michaelpaulino
   - data analysis developer from New York City
   - founder of 20 r00mz productions 
