@@ -1,4 +1,6 @@
 https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbjQyYnc1ZzIxMzNmY3dpaXA0azFtaTd5enBzY2ttOTQ3cGlsZXB3ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/SuoEnbtKkyJ9kR1ck2/giphy.gif
+![IMG_2615](https://github.com/user-attachments/assets/469e56c3-be5a-4456-b286-cd88feaea1b8)
+
 ![IMG_2346](https://github.com/user-attachments/assets/4b6e2e48-5469-472d-80e9-c3cf3eb47790)
 ![IMG_0756](https://github.com/user-attachments/assets/daf06acb-215f-4049-adef-b2996b3f00ac)
 Please consider Donating to sponsor my dance class - my content is brought forth by charitable donations from viewers like you . 
