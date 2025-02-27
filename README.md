@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/31f359f5-197c-40da-a302-d9973099e21f
 https://www.linkedin.com/pulse/interviewing-creator-ai-da-robot-feb-25-2025-michael-paulino-0qule
 
 ![IMG_2346](https://github.com/user-attachments/assets/4b6e2e48-5469-472d-80e9-c3cf3eb47790)
-![IMG_0756](https://github.com/user-attachments/assets/daf06acb-215f-4049-adef-b2996b3f00ac)
+
 Please consider Donating to sponsor my dance class - my content is brought forth by charitable donations from viewers like you . 
 ![IMG_2616](https://github.com/user-attachments/assets/329fc449-4092-4c49-a38f-f53bf0e927d1)
  #michaelpaulino #michaelpaulinostudios
