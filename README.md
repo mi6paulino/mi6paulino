@@ -20,12 +20,12 @@ PLEASE PLEASE PLEASE CHECK OUT MY DIGITAL ART GALLERY ON VOXELS METAVERSE GUYS h
   - data analysis developer from New York City
   - founder of 20 r00mz productions 
 - 👀 I’m interested in ... arts and graphic design
-- 🌱 I’m currently learning ... Art & design - DevOps ~ LLM - A.I ~ C# ~ EXCEL ~ Opensource ~ Coding ![IMG_3801](https://github.com/user-attachments/assets/307dbcaa-23a8-47b8-bd87-ff384614abac)
+- 🌱 I’m currently learning ... Art & design - DevOps ~ LLM - A.I ~ C# ~ EXCEL ~ Opensource ~ Creating Apps Coding ![IMG_3801](https://github.com/user-attachments/assets/307dbcaa-23a8-47b8-bd87-ff384614abac)
 ![IMG_3802](https://github.com/user-attachments/assets/79a9effb-eb97-4d61-ab70-a9b29b3e41e4)
 
 - 🤝 I’m looking to collaborate on ... website design open source a.i
 - 📫 How to reach me ... mikez_petm@yahoo.com or mrveryviral on instagram michael paulino studios on fb
-- teaching computers to design websites
+- teaching computers to design websites and analyze vast amounts of data in seconds 
 - ⚡ Fun fact: ... METAVERSE ART SHOW COMING SOON FOLLOW @MRVERYVIRAL FOR MORE 
 <!---
 mi6paulino/mi6paulino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
