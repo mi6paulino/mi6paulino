@@ -14,7 +14,7 @@ https://huggingface.co/spaces/Mi6paulino/20r00mz7
   - data analysis developer from New York City
   - founder of 20 r00mz productions 
 - 👀 I’m interested in ... arts and graphic design
-- 🌱 I’m currently learning ... Art & design - DevOps ~ LLM - A.I ~ C# ~ EXCEL ~ Opensource ~ Creating Apps Coding ![IMG_3801](https://github.com/user-attachments/assets/307dbcaa-23a8-47b8-bd87-ff384614abac)
+- 🌱 I’m currently learning ... Art & design - DevOps ~ LLM - A.I ~ C# ~ EXCEL ~ Opensource ~ Creating Apps Coding !/
 ![IMG_3802](https://github.com/user-attachments/assets/79a9effb-eb97-4d61-ab70-a9b29b3e41e4)
 
 - 🤝 I’m looking to collaborate on ... website design open source a.i
