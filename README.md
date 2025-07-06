@@ -31,6 +31,6 @@ PLEASE PLEASE PLEASE CHECK OUT MY DIGITAL ART GALLERY ON VOXELS METAVERSE GUYS h
 mi6paulino/mi6paulino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->https://www.fiverr.com/s/vvdk8GA?utm_source=CopyLink_Mobile
-codespaces listed above #wizardspell ©️ 9/11/2024 . property of Michael Paulino 
+codespaces listed above #wizardspell ©️ Michael Paulino 
 
-https://www.voxels.com/play?coords=E@443E,390N Journalist May Have Discovered Banksy In the Metaverse  #michaelpaulino discovered a Banksy art piece in the metaverse! This is the first-ever recognition of Banksy’s work in the virtual world. Stay tuned as we uncover more details about this groundbreaking discovery. Join us in the metaverse and be a part of this revolutionary art movement! #BanksyArt #MetaverseDiscovery #BanksyCommunity #VirtualRevolution #github #art #nyc #nft #huggingface #perchance #chatgpt #aiart #artbasel2024 #michaelpaulino #michaelpaulinostudios
+
