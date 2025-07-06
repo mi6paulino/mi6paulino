@@ -2,7 +2,7 @@ https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbjQyYnc1ZzIxMzNmY3dpaXA0azFtaTd5enB
 
 
 
-https://github.com/user-attachments/assets/31f359f5-197c-40da-a302-d9973099e21f
+
 https://www.linkedin.com/pulse/interviewing-creator-ai-da-robot-feb-25-2025-michael-paulino-0qule
 
 
