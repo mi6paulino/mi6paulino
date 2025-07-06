@@ -5,7 +5,7 @@ https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbjQyYnc1ZzIxMzNmY3dpaXA0azFtaTd5enB
 
 https://www.linkedin.com/pulse/interviewing-creator-ai-da-robot-feb-25-2025-michael-paulino-
 https://voxels.com/play?coords=W@669W,8S
-METAVERSE ART GALLERY BY MICHAEL PAULINO #Artbasel2024 #voxels #blockchain #michaelpaulino #michaelpaulinostudios
+
 
 
 https://huggingface.co/spaces/Mi6paulino/20r00mz7
@@ -18,9 +18,7 @@ https://huggingface.co/spaces/Mi6paulino/20r00mz7
 ![IMG_3802](https://github.com/user-attachments/assets/79a9effb-eb97-4d61-ab70-a9b29b3e41e4)
 
 - 🤝 I’m looking to collaborate on ... website design open source a.i
-- 📫 How to reach me ... mikez_petm@yahoo.com or mrveryviral on instagram michael paulino studios on fb
-- teaching computers to design websites and analyze vast amounts of data in seconds 
-- ⚡ Fun fact: ... METAVERSE ART SHOW COMING SOON FOLLOW @MRVERYVIRAL FOR MORE 
+
 <!---
 mi6paulino/mi6paulino is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
