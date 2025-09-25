@@ -32,7 +32,7 @@ The Library and the Black Market
 This cultural despair isn’t confined to screens. In 2011, during the Occupy Wall Street protests, authorities seized the People’s Library, a makeshift collection of donated books symbolizing the movement’s intellectual resistance. The act was a microcosm of how power responds to dissent: not with engagement, but with erasure. Fourteen years later, we’re still rebuilding—not just libraries, but the very idea of shared knowledge.
 
 
-Last year, I witnessed a similar dynamic in Boston’s Chinatown, where police raided black-market stalls selling counterfeit goods. The sellers, many of them immigrants, weren’t kingpins; they were people navigating an economy that offers few legal pathways to stability. The crackdown wasn’t about justice—it was theater, a performance of control that left the underlying conditions untouched. The goods were confiscated, the cameras moved on, and the cycle continued.
+Last year, I witnessed a similar dynamic in New York City Chinatown, where police raided black-market stalls selling counterfeit goods. The sellers, many of them immigrants, weren’t kingpins; they were people navigating an economy that offers few legal pathways to stability. The crackdown wasn’t about justice—it was theater, a performance of control that left the underlying conditions untouched. The goods were confiscated, the cameras moved on, and the cycle continued.
 
 
 These moments—Occupy’s library, Chinatown’s raids—aren’t isolated. They’re part of a pattern where institutions assert authority not to solve problems, but to manage them, turning systemic failures into individual moral failings. The message is clear: You’re on your own.
@@ -86,7 +86,7 @@ Visual Pitch: Commission an illustration of the “wall of condemned icons” as
 
 Angle Options:
 
-Local Focus: Expand on Boston’s Chinatown raids with interviews from affected vendors.
+Local Focus: Expand on New Yorks Chinatown raids with interviews from affected vendors.
 
 Digital Culture: Explore how algorithms amplify “lock in” mentalities (e.g., TikTok’s “sigma grindset” trends).
 
