@@ -4,7 +4,7 @@
 "‘Nobody Is Coming to Save You’: How Reality TV and Viral Despair Reflect America’s Isolation"
 
 
-Subtitle:
+
 From Love Island to Occupy Wall Street, the media we consume—and the slogans we repeat—reveal a society adrift in manufactured fear and fractured trust.
 
 
